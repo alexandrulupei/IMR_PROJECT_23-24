@@ -1,3 +1,3 @@
 
 Membrii echipei:
-Ecaterina Petrariu, Leustean Stefan, Lupei Alexandru
+Katy Petraru, Leustean Stefan, Lupei Alexandru
