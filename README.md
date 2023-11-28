@@ -1,3 +1,4 @@
+Get ready for fun in the sun with tic-tac-toe, then head indoors for classic arcade games like whac-a-mole.
 
 Membrii echipei:
-Katy Petraru, Leustean Stefan, Lupei Alexandru
+Leustean Stefan, Lupei Alexandru, Petraru Ecaterina
